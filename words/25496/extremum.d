@@ -1,0 +1,2 @@
+the point located farthest from the middle of something
+the most extreme possible amount or value

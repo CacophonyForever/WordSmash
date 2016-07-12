@@ -1,0 +1,1 @@
+taking delight in beauty

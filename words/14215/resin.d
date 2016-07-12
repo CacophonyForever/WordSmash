@@ -1,0 +1,1 @@
+any of a class of solid or semisolid viscous substances obtained either as exudations from certain plants or prepared by polymerization of simple molecules

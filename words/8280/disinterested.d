@@ -1,0 +1,1 @@
+unaffected by self-interest

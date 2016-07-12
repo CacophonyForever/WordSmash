@@ -1,0 +1,2 @@
+evaluate or estimate the nature, quality, ability, extent, or significance of
+form a critical opinion of

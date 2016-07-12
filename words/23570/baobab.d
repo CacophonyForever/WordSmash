@@ -1,0 +1,1 @@
+African tree having an exceedingly thick trunk and fruit that resembles a gourd and has an edible pulp called monkey bread

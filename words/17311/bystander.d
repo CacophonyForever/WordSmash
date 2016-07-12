@@ -1,0 +1,1 @@
+a nonparticipant spectator

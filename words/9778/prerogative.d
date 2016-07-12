@@ -1,0 +1,1 @@
+a right reserved exclusively by a particular person or group (especially a hereditary or official right

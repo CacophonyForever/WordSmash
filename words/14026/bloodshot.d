@@ -1,0 +1,1 @@
+(of an eye) reddened as a result of locally congested blood vessels

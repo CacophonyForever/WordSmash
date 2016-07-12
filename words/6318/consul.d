@@ -1,0 +1,1 @@
+a diplomat appointed by a government to protect its commercial interests and help its citizens in a foreign country

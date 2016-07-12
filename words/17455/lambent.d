@@ -1,0 +1,1 @@
+softly bright or radiant

@@ -1,0 +1,1 @@
+a rule adopted by an organization in order to regulate its own affairs and the behavior of its members

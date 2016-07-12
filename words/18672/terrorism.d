@@ -1,0 +1,1 @@
+the calculated use of violence (or the threat of violence) against civilians in order to attain goals that are political or religious or ideological in nature

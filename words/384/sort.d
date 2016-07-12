@@ -1,0 +1,6 @@
+a category of things distinguished by some common characteristic or quality
+an approximate definition or example
+a person of a particular character or nature
+an operation that segregates items into groups according to a specified criterion
+examine in order to test suitability
+arrange or order by classes or categories

@@ -1,0 +1,1 @@
+relatively long in duration

@@ -1,0 +1,1 @@
+a cookout at the seashore where clams and fish and other foods are cooked--usually on heated stones covered with seaweed

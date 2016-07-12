@@ -1,0 +1,7 @@
+get or gather together
+call for and obtain payment of
+assemble or get together
+get or bring together
+gather or collect
+brought together in one place
+in full control of your faculties

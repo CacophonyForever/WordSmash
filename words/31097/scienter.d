@@ -1,0 +1,1 @@
+(law) deliberately or knowingly

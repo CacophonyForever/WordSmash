@@ -1,0 +1,3 @@
+the action of incorporating a racial or religious group into a community
+the act of combining into an integral whole
+an operation used in the calculus whereby the integral of a function is determined

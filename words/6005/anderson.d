@@ -1,0 +1,5 @@
+United States author whose works were frequently autobiographical (1876-1941)
+United States physicist who studied the electronic structure of magnetic and disordered systems (1923-)
+United States dramatist (1888-1959)
+United States contralto noted for her performance of spirituals (1902-1993)
+United States physicist who discovered antimatter in the form of an antielectron that is called the positron (1905-1991)

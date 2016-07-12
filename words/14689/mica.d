@@ -1,0 +1,1 @@
+any of various minerals consisting of hydrous silicates of aluminum or potassium etc. that crystallize in forms that allow perfect cleavage into very thin leaves

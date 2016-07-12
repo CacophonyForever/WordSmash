@@ -1,0 +1,1 @@
+a favorable omen

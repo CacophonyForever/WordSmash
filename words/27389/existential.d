@@ -1,0 +1,3 @@
+derived from experience or the experience of existence
+of or as conceived by existentialism
+relating to or dealing with existence (especially with human existence)

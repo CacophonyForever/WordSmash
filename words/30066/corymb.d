@@ -1,0 +1,1 @@
+flat-topped or convex inflorescence in which the individual flower stalks grow upward from various points on the main stem to approximately the same height

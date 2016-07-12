@@ -1,0 +1,1 @@
+in a philanthropic manner

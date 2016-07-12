@@ -1,0 +1,1 @@
+a British or Canadian lawyer who speaks in the higher courts of law on behalf of either the defense or prosecution

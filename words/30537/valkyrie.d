@@ -1,0 +1,1 @@
+(Norse mythology) one of the maidens of Odin who chose heroes to be slain in battle and conducted them to Valhalla

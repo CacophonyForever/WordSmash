@@ -1,0 +1,2 @@
+a public building for gambling and entertainment
+a card game in which cards face up on the table are taken with eligible cards in the hand

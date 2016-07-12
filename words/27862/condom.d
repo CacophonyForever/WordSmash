@@ -1,0 +1,1 @@
+contraceptive device consisting of a sheath of thin rubber or latex that is worn over the penis during intercourse

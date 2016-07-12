@@ -1,0 +1,1 @@
+completely and without qualification

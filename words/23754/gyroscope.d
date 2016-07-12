@@ -1,0 +1,1 @@
+rotating mechanism in the form of a universally mounted spinning wheel that offers resistance to turns in any direction

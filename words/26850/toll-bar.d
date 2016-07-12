@@ -1,0 +1,1 @@
+a gate or bar across a toll bridge or toll road which is lifted when the toll is paid

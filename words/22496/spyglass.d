@@ -1,0 +1,1 @@
+a small refracting telescope

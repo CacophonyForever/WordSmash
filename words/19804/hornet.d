@@ -1,0 +1,1 @@
+large stinging paper wasp

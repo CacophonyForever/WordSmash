@@ -1,0 +1,5 @@
+a wrong action attributable to bad judgment or ignorance or inattention
+an understanding of something that is not correct
+part of a statement that is not correct
+identify incorrectly
+to make a mistake or be incorrect

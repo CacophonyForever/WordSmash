@@ -1,0 +1,4 @@
+move or draw apart
+have no limits as a mathematical series
+extend in a different direction
+be at variance with

@@ -1,0 +1,8 @@
+a person who owes allegiance to that nation
+of or relating to or belonging to a nation or country
+limited to or in the interests of a particular nation
+concerned with or applicable to or belonging to an entire nation or country
+owned or maintained for the public by the national government
+inside the country
+characteristic of or peculiar to the people of a nation
+of or relating to nationality

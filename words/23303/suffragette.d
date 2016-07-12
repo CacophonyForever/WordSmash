@@ -1,0 +1,1 @@
+a woman advocate of women's right to vote (especially a militant advocate in the United Kingdom at the beginning of the 20th century)

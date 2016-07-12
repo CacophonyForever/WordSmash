@@ -1,0 +1,3 @@
+many times at short intervals
+frequently or in great quantities
+in many cases or instances

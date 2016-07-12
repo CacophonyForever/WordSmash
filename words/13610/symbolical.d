@@ -1,0 +1,2 @@
+relating to or using or proceeding by means of symbols
+serving as a visible symbol for something abstract

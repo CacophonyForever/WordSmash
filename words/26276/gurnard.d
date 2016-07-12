@@ -1,0 +1,1 @@
+bottom-dwelling coastal fishes with spiny armored heads and fingerlike pectoral fins used for crawling along the sea bottom

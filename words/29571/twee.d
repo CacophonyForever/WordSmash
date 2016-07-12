@@ -1,0 +1,1 @@
+affectedly dainty or refined

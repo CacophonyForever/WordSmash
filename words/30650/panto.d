@@ -1,0 +1,1 @@
+an abbreviation of pantomime

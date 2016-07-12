@@ -1,0 +1,1 @@
+curving or bulging outward

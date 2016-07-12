@@ -1,0 +1,1 @@
+acutely insightful and wise

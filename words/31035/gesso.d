@@ -1,0 +1,1 @@
+gypsum or plaster of Paris spread on a surface to make it suitable for painting or gilding (or a surface so prepared)

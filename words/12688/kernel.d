@@ -1,0 +1,3 @@
+the inner and usually edible part of a seed or grain or nut or fruit stone
+a single whole grain of a cereal
+the choicest or most essential or most vital part of some idea or experience

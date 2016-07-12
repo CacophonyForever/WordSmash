@@ -1,0 +1,4 @@
+of or relating to or resulting from industry
+having highly developed industries
+employed in industry
+suitable to stand up to hard wear

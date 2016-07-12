@@ -1,0 +1,1 @@
+not endowed with life

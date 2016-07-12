@@ -1,0 +1,2 @@
+of or relating to a spectrum
+resembling or characteristic of a phantom

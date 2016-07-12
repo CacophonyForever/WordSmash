@@ -1,0 +1,2 @@
+in fortunate circumstances financially
+fortunately situated

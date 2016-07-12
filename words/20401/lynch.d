@@ -1,0 +1,1 @@
+kill without legal sanction

@@ -1,0 +1,1 @@
+spot, stain, or pollute

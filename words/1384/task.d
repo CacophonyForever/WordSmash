@@ -1,0 +1,4 @@
+any piece of work that is undertaken or attempted
+a specific piece of work required to be done as a duty or for a specific fee
+assign a task to
+use to the limit

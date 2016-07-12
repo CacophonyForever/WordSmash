@@ -1,0 +1,1 @@
+any of several herbs of the genus Taraxacum having long tap roots and deeply notched leaves and bright yellow flowers followed by fluffy seed balls

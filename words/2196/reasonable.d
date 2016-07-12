@@ -1,0 +1,3 @@
+showing reason or sound judgment
+not excessive or extreme
+marked by sound judgment

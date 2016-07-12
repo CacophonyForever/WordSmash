@@ -1,0 +1,5 @@
+a subdivision of a written work
+any distinct period in history or in a person's life
+a local branch of some fraternity or association
+an ecclesiastical assembly of the monks in a monastery or even of the canons of a church
+a series of related events forming an episode

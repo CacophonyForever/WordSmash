@@ -1,0 +1,4 @@
+concerned with actual use or practice
+guided by practical experience and observation rather than theory
+being actually such in almost every respect
+having or put to a practical purpose or use

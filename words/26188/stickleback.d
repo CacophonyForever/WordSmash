@@ -1,0 +1,1 @@
+small (2-4 inches) pugnacious mostly scaleless spiny-backed fishes of northern fresh and littoral waters having elaborate courtship

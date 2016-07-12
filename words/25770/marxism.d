@@ -1,0 +1,1 @@
+the economic and political theories of Karl Marx and Friedrich Engels that hold that human actions and institutions are economically determined and that class struggle is needed to create historical change and that capitalism will ultimately be superseded by communism

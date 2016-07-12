@@ -1,0 +1,2 @@
+divided into two portions almost to the base
+involving two parts or elements

@@ -1,0 +1,1 @@
+lasting through all time

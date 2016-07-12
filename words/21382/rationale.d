@@ -1,0 +1,1 @@
+(law) an explanation of the fundamental reasons (especially an explanation of the working of some device in terms of laws of nature

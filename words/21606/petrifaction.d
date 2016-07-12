@@ -1,0 +1,2 @@
+the process of turning some plant material into stone by infiltration with water carrying mineral particles without changing the original shape
+a rock created by petrifaction

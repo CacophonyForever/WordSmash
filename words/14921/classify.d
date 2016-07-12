@@ -1,0 +1,3 @@
+arrange or order by classes or categories
+declare unavailable, as for security reasons
+assign to a class or kind

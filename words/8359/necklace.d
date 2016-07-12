@@ -1,0 +1,1 @@
+jewelry consisting of a cord or chain (often bearing gems) worn about the neck as an ornament (especially by women)

@@ -1,0 +1,1 @@
+any of numerous composite plants having flower heads with well-developed ray flowers usually arranged in a single whorl

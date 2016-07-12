@@ -1,0 +1,1 @@
+(of animals) carnivorous

@@ -1,0 +1,1 @@
+foolish or senseless behavior

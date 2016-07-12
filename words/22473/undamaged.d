@@ -1,0 +1,1 @@
+not harmed or spoiled

@@ -1,0 +1,2 @@
+consisting of or derived from tradition
+pertaining to time-honored orthodox doctrines

@@ -1,0 +1,1 @@
+a flexible rodlike structure that forms the supporting axis of the body in the lowest chordates and lowest vertebrates and in embryos of higher vertebrates

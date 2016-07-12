@@ -1,0 +1,1 @@
+of or relating to meaning or the study of meaning

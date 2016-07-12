@@ -1,0 +1,1 @@
+counting backward from an arbitrary number to indicate the time remaining before some event (such as launching a space vehicle)

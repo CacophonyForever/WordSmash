@@ -1,0 +1,6 @@
+something that is oriented vertically
+a vertical structural member as a post or stake
+at right angles to the plane of the horizon or a base line
+relating to or involving all stages of a business from production to distribution
+upright in position or posture
+of or relating to different levels in a hierarchy (as levels of social class or income group

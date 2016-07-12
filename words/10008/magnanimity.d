@@ -1,0 +1,1 @@
+liberality in bestowing gifts

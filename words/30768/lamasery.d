@@ -1,0 +1,1 @@
+a monastery for lamas

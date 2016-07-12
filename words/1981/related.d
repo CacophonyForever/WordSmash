@@ -1,0 +1,7 @@
+make a logical or causal connection
+be relevant to
+give an account of
+be in a relationship with
+have or establish a relationship to
+being connected either logically or causally or by shared characteristics 
+connected by kinship, common origin, or marriage

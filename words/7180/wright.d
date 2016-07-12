@@ -1,0 +1,7 @@
+United States writer of detective novels (1888-1939)
+United States writer whose work is concerned with the oppression of African Americans (1908-1960)
+United States aviation pioneer who (with his brother Orville Wright) invented the airplane (1867-1912)
+United States aviation pioneer who (with his brother Wilbur Wright) invented the airplane (1871-1948)
+influential United States architect (1869-1959)
+United States early feminist (born in Scotland) (1795-1852)
+someone who makes or repairs something (usually used in combination)

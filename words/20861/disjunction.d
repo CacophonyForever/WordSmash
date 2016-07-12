@@ -1,0 +1,2 @@
+state of being disconnected
+the act of breaking a connection

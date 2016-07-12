@@ -1,0 +1,8 @@
+the cognitive process of acquiring skill or knowledge
+profound scholarly knowledge
+gain knowledge or skills
+get to know or become aware of, usually accidentally
+commit to memory
+be a student of a certain subject
+impart skills or knowledge to
+find out, learn, or determine with certainty, usually by making an inquiry or other effort

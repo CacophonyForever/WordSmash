@@ -1,0 +1,2 @@
+the study of language meaning
+the meaning of a word, phrase, sentence, or text

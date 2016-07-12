@@ -1,0 +1,1 @@
+a fibrous amphibole

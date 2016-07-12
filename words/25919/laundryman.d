@@ -1,0 +1,1 @@
+operates industrial washing machine

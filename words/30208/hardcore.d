@@ -1,0 +1,2 @@
+intensely loyal
+extremely explicit

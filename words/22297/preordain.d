@@ -1,0 +1,1 @@
+foreordain or determine beforehand

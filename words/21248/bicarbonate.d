@@ -1,0 +1,1 @@
+a salt of carbonic acid (containing the anion HCO3) in which one hydrogen atom has been replaced

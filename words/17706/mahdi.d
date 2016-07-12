@@ -1,0 +1,1 @@
+(Islam) a messianic leader who (according to popular Muslim belief) will appear before the end of the world and restore justice and religion

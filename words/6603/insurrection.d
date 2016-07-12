@@ -1,0 +1,1 @@
+organized opposition to authority

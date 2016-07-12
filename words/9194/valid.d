@@ -1,0 +1,2 @@
+well grounded in logic or truth or having legal force
+still legally acceptable

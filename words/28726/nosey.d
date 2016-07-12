@@ -1,0 +1,1 @@
+offensively curious or inquisitive

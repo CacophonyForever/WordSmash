@@ -1,0 +1,1 @@
+increasing by successive addition

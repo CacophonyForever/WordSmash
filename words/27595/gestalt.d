@@ -1,0 +1,1 @@
+a configuration or pattern of elements so unified as a whole that it cannot be described merely as a sum of its parts

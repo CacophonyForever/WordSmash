@@ -1,0 +1,6 @@
+a particular point in time
+an indefinitely short time
+at this time
+having important effects or influence
+a turning force produced by an object acting at a distance (or a measure of that force)
+the n-th moment of a distribution is the expected value of the n-th power of the deviations from a fixed value

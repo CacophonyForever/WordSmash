@@ -1,0 +1,2 @@
+a riblike part of a plant or animal (such as a middle rib of a leaf or a thickened vein of an insect wing)
+any of the 12 pairs of curved arches of bone extending from the spine to or toward the sternum in humans (and similar bones in most vertebrates)

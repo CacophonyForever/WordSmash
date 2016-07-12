@@ -1,0 +1,1 @@
+any of several trees of the genus Populus having leaves on flattened stalks so that they flutter in the lightest wind

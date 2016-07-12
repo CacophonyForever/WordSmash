@@ -1,0 +1,2 @@
+being unsettled or in doubt or dependent on chance
+the state of being unsure of something

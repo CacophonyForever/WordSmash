@@ -1,0 +1,3 @@
+an event that repeats
+the act of doing or performing again
+the repeated use of the same word or word pattern as a rhetorical device

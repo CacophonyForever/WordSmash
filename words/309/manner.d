@@ -1,0 +1,3 @@
+how something is done or how it happens
+a way of acting or behaving
+a kind

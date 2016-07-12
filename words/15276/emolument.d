@@ -1,0 +1,1 @@
+compensation received by virtue of holding an office or having employment (usually in the form of wages or fees

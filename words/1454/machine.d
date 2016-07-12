@@ -1,0 +1,8 @@
+any mechanical or electrical device that transmits or modifies energy to perform or assist in the performance of human tasks
+an efficient person
+an intricate organization that accomplishes its goals efficiently
+a device for overcoming resistance at one point by applying force at some other point
+a group that controls the activities of a political party
+a motor vehicle with four wheels
+turn, shape, mold, or otherwise finish by machinery
+make by machinery

@@ -1,0 +1,1 @@
+vehemently incensed and condemnatory

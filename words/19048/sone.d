@@ -1,0 +1,1 @@
+a unit of perceived loudness equal to the loudness of a 1000-hertz tone at 40 dB above threshold

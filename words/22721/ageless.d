@@ -1,0 +1,1 @@
+continuing forever or indefinitely

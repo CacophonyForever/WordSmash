@@ -1,0 +1,3 @@
+make plain and comprehensible
+define
+serve as a reason or cause or justification of

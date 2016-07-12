@@ -1,0 +1,2 @@
+a straight line that intersects a curve at two or more points
+ratio of the hypotenuse to the adjacent side of a right-angled triangle

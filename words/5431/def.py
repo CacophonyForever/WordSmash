@@ -21,6 +21,9 @@ for filen in dirfiles:
 						out.append(m.group(1)[:-1])
 					else:
 						out.append((m.group(1)))
+		outfile = open(wordname + ".d","w")
+		
 		for defin in out:
-			print defin
+			outfile.write(defin + "\n")
 		print (wordname)
+		outfile.close

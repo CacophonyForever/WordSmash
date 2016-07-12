@@ -1,15 +1,35 @@
 import re
 import os 
-print os.listdir(".")
-file = open("*.def",'r')
-defpat= ' -- \(([^\n;]*)'
-defpat2= '\)\n'
-g = file.readlines()
-for line in g:
-	m = re.search(defpat, line)
-	if m:
-		if m.group(1) != "":
-			if (m.group(1).endswith(")")):
-				print m.group(1)[:-1]
-			else:
-				print (m.group(1))
+words = os.listdir(".")
+print (len(words))
+for wordn in words:
+	if (os.path.isdir(wordn)):
+		dirfiles = os.listdir("./" + wordn)
+		for filen in dirfiles:
+			if ( (filen[-4:]) == ".def"):
+				wordname = filen[:-4]
+				file = open("./" +  wordn + "/" + filen,'r')
+				wordpat = "Overview of (.*?) (.*?)$"
+				defpat= ' -- \(([^\n;]*)'
+				defpat2= '\)\n'
+				g = file.readlines()
+				out = []
+				for line in g:
+					w = re.search(wordpat, line)
+					if w:
+						wordname = w.group(2)
+					m = re.search(defpat, line)
+					if m:
+						if m.group(1) != "":
+							if (m.group(1).endswith(")")):
+								out.append(m.group(1)[:-1])
+							else:
+								out.append((m.group(1)))
+				print(wordname)
+				
+				outfile = open("./" + wordn + "/" + wordname + ".d","w")
+			
+				for defin in out:
+					outfile.write(defin + "\n")
+				print (wordname)
+				outfile.close

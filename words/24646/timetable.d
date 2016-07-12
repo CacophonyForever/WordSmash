@@ -1,0 +1,2 @@
+a schedule listing events and the times at which they will take place
+a schedule of times of arrivals and departures

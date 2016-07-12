@@ -1,0 +1,1 @@
+substituting the name of an attribute or feature for the name of the thing itself (as in `they counted heads')

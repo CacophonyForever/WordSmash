@@ -1,0 +1,1 @@
+carefully observant or attentive

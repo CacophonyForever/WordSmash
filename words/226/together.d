@@ -1,0 +1,7 @@
+mentally and emotionally stable
+in contact with each other or in proximity
+assembled in one place
+in each other's company
+at the same time
+with cooperation and interchange
+with a common plan

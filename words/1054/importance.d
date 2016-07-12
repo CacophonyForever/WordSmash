@@ -1,0 +1,2 @@
+the quality of being important and worthy of note
+a prominent status

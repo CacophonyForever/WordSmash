@@ -1,0 +1,1 @@
+a mineral consisting of uranium oxide and trace amounts of radium and thorium and polonium and lead and helium

@@ -1,0 +1,3 @@
+anything indispensable
+absolutely essential
+unavoidably determined by prior circumstances

@@ -1,0 +1,2 @@
+giving satisfaction
+meeting requirements

@@ -1,0 +1,1 @@
+(rugby) the method of beginning play in which the forwards of each team crouch side by side with locked arms

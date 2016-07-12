@@ -1,0 +1,1 @@
+in fortunate circumstances financially

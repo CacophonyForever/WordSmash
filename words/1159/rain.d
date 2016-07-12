@@ -1,0 +1,4 @@
+water falling in drops from vapor condensed in the atmosphere
+drops of fresh water that fall as precipitation from clouds
+anything happening rapidly or in quick successive
+precipitate as rain

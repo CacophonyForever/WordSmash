@@ -1,0 +1,1 @@
+immunogen consisting of a suspension of weakened or dead pathogenic cells injected in order to stimulate the production of antibodies

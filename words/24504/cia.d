@@ -1,0 +1,1 @@
+an independent agency of the United States government responsible for collecting and coordinating intelligence and counterintelligence activities abroad in the national interest

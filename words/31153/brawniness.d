@@ -1,0 +1,1 @@
+possessing muscular strength

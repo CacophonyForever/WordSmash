@@ -1,0 +1,1 @@
+equality of distribution

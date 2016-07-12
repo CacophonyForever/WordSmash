@@ -1,0 +1,2 @@
+approval to do something
+the act of giving a formal (usually written) authorization

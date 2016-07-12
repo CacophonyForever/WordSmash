@@ -1,0 +1,1 @@
+constituting or comprising a part or fraction of a possible whole or entirety

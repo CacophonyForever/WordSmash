@@ -1,0 +1,1 @@
+a commissioned military officer in the United States Army or Air Force or Marines who ranks above a lieutenant colonel and below a brigadier general

@@ -1,0 +1,2 @@
+someone who gossips indiscreetly
+disclosing unintentionally

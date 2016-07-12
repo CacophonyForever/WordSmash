@@ -1,0 +1,3 @@
+a person who follows next in order
+a thing or person that immediately replaces something or someone
+a person who inherits some title or office

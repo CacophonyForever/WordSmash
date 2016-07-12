@@ -1,0 +1,1 @@
+(medicine) something that can be used as a substitute (especially any medicine that may be taken in place of another)

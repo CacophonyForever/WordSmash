@@ -1,0 +1,2 @@
+by chance
+to a degree possible of achievement or by possible means

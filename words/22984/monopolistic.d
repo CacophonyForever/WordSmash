@@ -1,0 +1,1 @@
+having exclusive control over a commercial activity by possession or legal grant

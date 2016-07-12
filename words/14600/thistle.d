@@ -1,0 +1,1 @@
+any of numerous plants of the family Compositae and especially of the genera Carduus and Cirsium and Onopordum having prickly-edged leaves

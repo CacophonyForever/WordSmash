@@ -1,0 +1,1 @@
+greatly pleasing or entertaining

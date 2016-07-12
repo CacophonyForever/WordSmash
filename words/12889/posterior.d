@@ -1,0 +1,4 @@
+the fleshy part of the human body that you sit on
+a tooth situated at the back of the mouth
+located at or near or behind a part or near the end of a structure
+coming at a subsequent time or stage

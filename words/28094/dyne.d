@@ -1,0 +1,1 @@
+a unit of force equal to the force that imparts an acceleration of 1 cm/sec/sec to a mass of 1 gram

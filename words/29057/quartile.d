@@ -1,0 +1,1 @@
+(statistics) any of three points that divide an ordered distribution into four parts each containing one quarter of the scores

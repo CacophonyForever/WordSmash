@@ -1,0 +1,1 @@
+any of various Old World shrubs having smooth entire leaves and terminal panicles of small white flowers followed by small black berries

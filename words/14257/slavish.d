@@ -1,0 +1,2 @@
+blindly imitative
+abjectly submissive

@@ -1,0 +1,1 @@
+someone suffering psychological depression

@@ -1,0 +1,1 @@
+offering or expressing apology

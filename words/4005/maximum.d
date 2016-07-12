@@ -1,0 +1,4 @@
+the largest possible quantity
+the greatest possible degree
+the point on a curve where the tangent changes from positive on the left to negative on the right
+the greatest or most complete or best possible

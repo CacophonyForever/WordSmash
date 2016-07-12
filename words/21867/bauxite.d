@@ -1,0 +1,1 @@
+a clay-like mineral

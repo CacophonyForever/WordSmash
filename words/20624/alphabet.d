@@ -1,0 +1,2 @@
+a character set that includes letters and is used to write a language
+the elementary stages of any subject (usually plural

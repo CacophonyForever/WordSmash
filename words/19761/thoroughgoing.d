@@ -1,0 +1,2 @@
+performed comprehensively and completely
+without qualification

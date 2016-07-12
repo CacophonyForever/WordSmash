@@ -1,0 +1,1 @@
+aromatic gum resin

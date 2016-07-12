@@ -1,0 +1,3 @@
+a sum of money paid or a claim discharged
+the act of paying money
+an act of requiting

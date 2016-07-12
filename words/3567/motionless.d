@@ -1,0 +1,1 @@
+not in physical motion

@@ -1,0 +1,1 @@
+feeding only on plants

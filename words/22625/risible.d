@@ -1,0 +1,1 @@
+arousing or provoking laughter

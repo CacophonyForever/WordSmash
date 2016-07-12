@@ -1,0 +1,1 @@
+mentally nimble and resourceful

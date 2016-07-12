@@ -1,0 +1,3 @@
+any of several Old World herbs of the genus Medicago having small flowers and trifoliate compound leaves
+a plant of the genus Trifolium
+an architectural ornament in the form of three arcs arranged in a circle

@@ -1,0 +1,2 @@
+the likelihood of a thing occurring rather than not occurring
+the ratio by which one better's wager is greater than that of another

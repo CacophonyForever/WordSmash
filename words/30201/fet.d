@@ -1,0 +1,1 @@
+a transistor in which most current flows in a channel whose effective resistance can be controlled by a transverse electric field

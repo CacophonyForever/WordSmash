@@ -1,0 +1,3 @@
+serving to open or begin
+serving as a base or starting point
+serving as an introduction or preface

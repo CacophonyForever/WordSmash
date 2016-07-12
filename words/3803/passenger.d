@@ -1,0 +1,1 @@
+a traveler riding in a vehicle (a boat or bus or car or plane or train etc) who is not operating it

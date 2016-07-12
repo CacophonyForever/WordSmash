@@ -1,0 +1,1 @@
+marriage to a person belonging to a tribe or group other than your own as required by custom or law

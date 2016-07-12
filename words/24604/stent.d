@@ -1,0 +1,1 @@
+a slender tube inserted inside a tubular body part (as a blood vessel) to provide support during and after surgical anastomosis

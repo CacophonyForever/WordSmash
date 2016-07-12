@@ -1,0 +1,5 @@
+to gain with effort
+reach a point in time, or a certain state or level
+find unexpectedly
+reach a destination, either real or abstract
+achieved or reached

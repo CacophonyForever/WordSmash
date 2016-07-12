@@ -1,0 +1,3 @@
+a state of difficulty that needs to be resolved
+a question raised for consideration or solution
+a source of difficulty

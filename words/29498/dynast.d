@@ -1,0 +1,1 @@
+a hereditary ruler

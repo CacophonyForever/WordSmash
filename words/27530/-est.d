@@ -1,0 +1,1 @@
+standard time in the 5th time zone west of Greenwich, reckoned at the 75th meridian

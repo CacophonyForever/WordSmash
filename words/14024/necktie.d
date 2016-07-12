@@ -1,0 +1,1 @@
+neckwear consisting of a long narrow piece of material worn (mostly by men) under a collar and tied in knot at the front

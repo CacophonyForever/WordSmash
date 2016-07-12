@@ -1,0 +1,5 @@
+a mistake in printed matter resulting from mechanical failures of some kind
+being or reflecting the essential or genuine character of something
+without interpretation or embellishment
+limited to the explicit meaning of a word or text
+avoiding embellishment or exaggeration (used for emphasis

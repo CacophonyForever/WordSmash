@@ -1,0 +1,1 @@
+(psychology) an extroverted disposition

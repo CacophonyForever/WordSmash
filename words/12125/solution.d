@@ -1,0 +1,5 @@
+a homogeneous mixture of two or more substances
+a statement that solves a problem or explains how to solve the problem
+a method for solving a problem
+the set of values that give a true statement when substituted into an equation
+the successful action of solving a problem

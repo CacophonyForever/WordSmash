@@ -1,0 +1,3 @@
+not pertinent to the matter under consideration
+statistically unrelated
+having a set of mutually perpendicular axes

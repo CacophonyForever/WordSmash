@@ -1,0 +1,1 @@
+broadly or extravagantly humorous

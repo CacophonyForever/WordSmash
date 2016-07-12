@@ -1,0 +1,1 @@
+a fruiting structure resembling an umbrella or a cone that forms the top of a stalked fleshy fungus such as a mushroom

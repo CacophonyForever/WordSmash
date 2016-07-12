@@ -1,0 +1,1 @@
+a church officer who takes care of the interior of the building and acts as an attendant (carries the verge) during ceremonies

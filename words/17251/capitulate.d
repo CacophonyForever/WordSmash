@@ -1,0 +1,1 @@
+surrender under agreed conditions

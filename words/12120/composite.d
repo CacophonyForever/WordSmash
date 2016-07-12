@@ -1,0 +1,4 @@
+a conceptual whole made up of complicated and related parts
+considered the most highly evolved dicotyledonous plants, characterized by florets arranged in dense heads that resemble single flowers
+consisting of separate interconnected parts
+of or relating to or belonging to the plant family Compositae

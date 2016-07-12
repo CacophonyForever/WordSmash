@@ -1,0 +1,1 @@
+yearling heifer or bullock

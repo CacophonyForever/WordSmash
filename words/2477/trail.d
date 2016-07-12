@@ -1,0 +1,8 @@
+a track or mark left by something that has passed
+a path or track roughly blazed through wild or hilly country
+evidence pointing to a possible solution
+to lag or linger behind
+go after with the intent to catch
+move, proceed, or walk draggingly or slowly
+hang down so as to drag along the ground
+drag loosely along a surface

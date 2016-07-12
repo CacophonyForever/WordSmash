@@ -1,0 +1,1 @@
+derived or originating externally

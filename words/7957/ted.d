@@ -1,0 +1,1 @@
+a tough youth of 1950's and 1960's wearing Edwardian style clothes

@@ -1,0 +1,1 @@
+the Hebrew patriarch who saved himself and his family and the animals by building an ark in which they survived 40 days and 40 nights of rain

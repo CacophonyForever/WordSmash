@@ -1,0 +1,1 @@
+any of various organs that synthesize substances needed by the body and release it through ducts or directly into the bloodstream

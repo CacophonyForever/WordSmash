@@ -1,0 +1,1 @@
+a member of a group of North American Indian peoples who spoke a Siouan language and who ranged from Lake Michigan to the Rocky Mountains

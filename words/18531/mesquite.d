@@ -1,0 +1,1 @@
+any of several small spiny trees or shrubs of the genus Prosopis having small flowers in axillary cylindrical spikes followed by large pods rich in sugar

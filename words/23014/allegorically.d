@@ -1,0 +1,1 @@
+in an allegorical manner

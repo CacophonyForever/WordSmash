@@ -1,0 +1,9 @@
+a set of two similar things considered as a unit
+two items of the same kind
+two people considered as a unit
+a poker hand with 2 cards of the same value
+form a pair or pairs
+bring two objects, ideas, or people together
+occur in pairs
+arrange in pairs
+engage in sexual intercourse

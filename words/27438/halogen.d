@@ -1,0 +1,1 @@
+any of five related nonmetallic elements (fluorine or chlorine or bromine or iodine or astatine) that are all monovalent and readily form negative ions

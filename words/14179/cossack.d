@@ -1,0 +1,1 @@
+a member of a Slavic people living in southern European Russia and Ukraine and adjacent parts of Asia and noted for their horsemanship and military skill

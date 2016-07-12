@@ -1,0 +1,1 @@
+common perennial aromatic herb native to Eurasia having buttonlike yellow flower heads and bitter-tasting pinnate leaves sometimes used medicinally

@@ -1,0 +1,10 @@
+money extracted as a penalty
+issue a ticket or a fine to as a penalty
+being satisfactory or in satisfactory condition
+minutely precise especially in differences in meaning
+thin in thickness or diameter
+characterized by elegance or refinement or accomplishment
+of textures that are smooth to the touch or substances consisting of relatively small particles
+free from impurities
+an expression of agreement normally occurring at the beginning of a sentence
+in a delicate manner

@@ -1,0 +1,1 @@
+a card game (usually for two players) in which each player is dealt six cards and discards one or two

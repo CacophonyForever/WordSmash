@@ -1,0 +1,3 @@
+accomplishment of an objective
+the act of arriving at a certain place
+someone who arrives (or has arrived)

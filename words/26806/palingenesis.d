@@ -1,0 +1,1 @@
+emergence during embryonic development of various characters or structures that appeared during the evolutionary history of the strain or species

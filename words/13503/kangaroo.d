@@ -1,0 +1,1 @@
+any of several herbivorous leaping marsupials of Australia and New Guinea having large powerful hind legs and a long thick tail

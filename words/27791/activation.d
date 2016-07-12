@@ -1,0 +1,3 @@
+stimulation of activity in an organism or chemical
+the activity of causing to have energy and be active
+making active and effective (as a bomb)

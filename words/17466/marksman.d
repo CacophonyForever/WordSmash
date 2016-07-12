@@ -1,0 +1,1 @@
+someone skilled in shooting

@@ -1,0 +1,1 @@
+a sailing vessel with a single mast set about one third of the boat's length aft of the bow

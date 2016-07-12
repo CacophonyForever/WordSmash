@@ -1,0 +1,1 @@
+the mainland part of the province of Newfoundland and Labrador in the eastern part of the large Labrador-Ungava Peninsula in northeastern Canada

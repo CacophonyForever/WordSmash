@@ -1,0 +1,1 @@
+a condensed but memorable saying embodying some important fact of experience that is taken as true by many people

@@ -1,0 +1,1 @@
+stable gear consisting of either of two curved supports that are attached to the collar of a draft horse and that hold the traces

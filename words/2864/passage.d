@@ -1,0 +1,10 @@
+the act of passing from one state or place to the next
+a section of text
+a way through or along which someone or something may pass
+the passing of a law by a legislative body
+a journey usually by ship
+a short section of a musical composition
+a path or channel or duct through or along which something may pass
+a bodily reaction of changing from one place or stage to another
+the motion of one object relative to another
+the act of passing something to another person

@@ -1,0 +1,7 @@
+try to locate or discover, or try to establish the existence of
+search or seek
+inquire into
+subject to a search
+diligent and thorough in inquiry or investigation
+having keenness and forcefulness and penetration in thought, expression, or intellect
+exploring thoroughly

@@ -1,0 +1,2 @@
+spontaneously derived from or prompted by a natural tendency
+obtained through intuition rather than from reasoning or observation

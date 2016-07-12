@@ -1,0 +1,1 @@
+possessing or displaying courage

@@ -1,0 +1,1 @@
+a protagonist who lacks the characteristics that would make him a hero (or her a heroine)

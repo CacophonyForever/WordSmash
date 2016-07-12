@@ -1,0 +1,1 @@
+expressing entreaty or supplication

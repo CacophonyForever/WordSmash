@@ -1,0 +1,1 @@
+having all angles equal

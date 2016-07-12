@@ -1,0 +1,2 @@
+characterized by simple geometric forms in design and decoration
+of or relating to or determined by geometry

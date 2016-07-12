@@ -1,0 +1,2 @@
+spend thoughtlessly
+spend extravagantly

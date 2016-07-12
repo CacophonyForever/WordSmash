@@ -1,0 +1,1 @@
+the curve theoretically assumed by a perfectly flexible and inextensible cord of uniform density and cross section hanging freely from two fixed points

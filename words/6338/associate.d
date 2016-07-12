@@ -1,0 +1,8 @@
+a person who joins with others in some activity or endeavor
+a friend who is frequently in the company of another
+a person with subordinate membership in a society, institution, or commercial enterprise
+any event that usually accompanies or is closely connected with another
+a degree granted by a two-year college on successful completion of the undergraduates course of studies
+make a logical or causal connection
+keep company with
+bring or come into association or action

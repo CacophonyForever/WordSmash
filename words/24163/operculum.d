@@ -1,0 +1,1 @@
+a hard flap serving as a cover for (a) the gill slits in fishes or (b) the opening of the shell in certain gastropods when the body is retracted

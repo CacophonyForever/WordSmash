@@ -1,0 +1,1 @@
+provide with military equipment

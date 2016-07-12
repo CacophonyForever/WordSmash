@@ -1,0 +1,3 @@
+the act of examining resemblances
+relation based on similarities and differences
+qualities that are comparable

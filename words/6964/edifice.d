@@ -1,0 +1,1 @@
+a structure that has a roof and walls and stands more or less permanently in one place

@@ -1,0 +1,1 @@
+capable of being or liable to be divided or separated

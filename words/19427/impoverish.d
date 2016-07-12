@@ -1,0 +1,2 @@
+make poor
+take away

@@ -1,0 +1,1 @@
+having unlimited power

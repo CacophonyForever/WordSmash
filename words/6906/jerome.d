@@ -1,0 +1,1 @@
+(Roman Catholic Church) one of the great Fathers of the early Christian Church whose major work was his translation of the Scriptures from Hebrew and Greek into Latin (which became the Vulgate

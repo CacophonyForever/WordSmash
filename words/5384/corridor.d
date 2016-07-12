@@ -1,0 +1,1 @@
+an enclosed passageway

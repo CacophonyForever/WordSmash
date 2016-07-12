@@ -1,0 +1,1 @@
+in characteristic manner

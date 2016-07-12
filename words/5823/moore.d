@@ -1,0 +1,6 @@
+United States composer of works noted for their use of the American vernacular (1893-1969)
+English actor and comedian who appeared on television and in films (born in 1935)
+English philosopher (1873-1958)
+Irish poet who wrote nostalgic and patriotic verse (1779-1852)
+United States poet noted for irony and wit (1887-1872)
+British sculptor whose works are monumental organic forms (1898-1986)

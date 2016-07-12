@@ -1,0 +1,3 @@
+reproduce someone's behavior or looks
+create a representation or model of
+make a pretence of

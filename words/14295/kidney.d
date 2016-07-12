@@ -1,0 +1,1 @@
+either of two bean-shaped excretory organs that filter wastes (especially urea) from the blood and excrete them and water in urine

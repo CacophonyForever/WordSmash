@@ -1,0 +1,1 @@
+(Greek mythology) the beautiful daughter of Zeus and Leda who was abducted by Paris

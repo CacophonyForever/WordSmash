@@ -1,0 +1,1 @@
+strike with a cudgel

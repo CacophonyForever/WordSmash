@@ -1,0 +1,2 @@
+to show, make visible or apparent
+attract attention by displaying some body part or posing

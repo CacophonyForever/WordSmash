@@ -1,0 +1,1 @@
+to a complete degree or to the full or entire extent (`whole' is often used informally for `wholly'

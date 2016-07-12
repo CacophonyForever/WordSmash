@@ -1,0 +1,3 @@
+displaying a lack of consistency
+not capable of being made consistent or harmonious
+not in agreement

@@ -1,0 +1,1 @@
+a spoken blessing

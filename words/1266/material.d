@@ -1,0 +1,11 @@
+the tangible substance that goes into the makeup of a physical object
+information (data or ideas or observations) that can be used or reworked into a finished form
+artifact made by weaving or felting or knitting or crocheting natural or synthetic fibers
+things needed for doing or making something
+a person judged suitable for admission or employment
+concerned with worldly rather than spiritual interests
+derived from or composed of matter
+directly relevant to a matter especially a law case
+concerned with or affecting physical as distinct from intellectual or psychological well-being
+having material or physical form or substance
+having substance or capable of being treated as fact

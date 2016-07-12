@@ -1,0 +1,2 @@
+influence by slyness
+attract

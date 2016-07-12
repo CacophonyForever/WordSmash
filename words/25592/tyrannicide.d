@@ -1,0 +1,1 @@
+killing a tyrant

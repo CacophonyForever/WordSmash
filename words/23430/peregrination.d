@@ -1,0 +1,1 @@
+traveling or wandering around

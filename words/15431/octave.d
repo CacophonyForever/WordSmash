@@ -1,0 +1,3 @@
+a feast day and the seven days following it
+a musical interval of eight tones
+a rhythmic group of eight lines of verse

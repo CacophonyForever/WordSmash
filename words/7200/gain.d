@@ -1,0 +1,13 @@
+a quantity that is added
+the advantageous quality of being beneficial
+the amount of increase in signal power or voltage or current expressed as the ratio of output to input
+the amount by which the revenue of a business exceeds its cost of operating
+obtain
+win something through one's efforts
+derive a benefit from
+reach a destination, either real or abstract
+obtain advantages, such as points, etc.
+rise in rate or price
+increase or develop
+earn on some commercial or business transaction
+increase (one's body weight

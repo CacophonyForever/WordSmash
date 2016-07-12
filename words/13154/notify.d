@@ -1,0 +1,1 @@
+inform (somebody) of something

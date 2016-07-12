@@ -1,0 +1,1 @@
+not arrogant or presuming

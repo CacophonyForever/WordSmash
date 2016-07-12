@@ -1,0 +1,1 @@
+a cylindrical spikelike inflorescence

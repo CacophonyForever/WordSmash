@@ -1,0 +1,2 @@
+the amount per unit size
+the spatial property of being crowded together

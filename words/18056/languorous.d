@@ -1,0 +1,1 @@
+lacking spirit or liveliness

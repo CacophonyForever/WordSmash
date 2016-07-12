@@ -1,0 +1,1 @@
+lose confidence or hope

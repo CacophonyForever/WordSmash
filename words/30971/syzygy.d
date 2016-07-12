@@ -1,0 +1,1 @@
+the straight line configuration of 3 celestial bodies (as the sun and earth and moon) in a gravitational system

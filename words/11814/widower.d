@@ -1,0 +1,1 @@
+a man whose wife is dead especially one who has not remarried

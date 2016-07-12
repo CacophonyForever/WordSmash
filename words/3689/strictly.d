@@ -1,0 +1,3 @@
+restricted to something
+in a stringent manner
+in a rigorous manner

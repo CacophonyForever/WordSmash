@@ -1,0 +1,1 @@
+of or resembling chitin

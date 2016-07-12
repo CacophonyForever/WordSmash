@@ -1,0 +1,1 @@
+the United States Army's principal law enforcement agency responsible for the conduct of criminal investigations for all levels of the Army anywhere in the world

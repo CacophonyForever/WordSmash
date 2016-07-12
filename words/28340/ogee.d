@@ -1,0 +1,1 @@
+a molding that (in section) has the shape of an S with the convex part above and the concave part below

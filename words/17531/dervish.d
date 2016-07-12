@@ -1,0 +1,1 @@
+an ascetic Muslim monk

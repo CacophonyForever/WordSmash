@@ -1,0 +1,2 @@
+a state of being or existence above and beyond the limits of material experience
+the state of excelling or surpassing or going beyond usual limits

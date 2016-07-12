@@ -1,0 +1,1 @@
+under the feudal system, the deed by which a person was given land in exchange for a pledge of service

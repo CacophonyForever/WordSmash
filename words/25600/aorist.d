@@ -1,0 +1,1 @@
+a verb tense in some languages (classical Greek and Sanskrit) expressing action (especially past action) without indicating its completion or continuation

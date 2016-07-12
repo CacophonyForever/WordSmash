@@ -1,0 +1,1 @@
+offering fun and gaiety

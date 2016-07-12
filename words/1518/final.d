@@ -1,0 +1,5 @@
+the final match between the winners of all previous matches in an elimination tournament
+an examination administered at the end of an academic term
+occurring at or forming an end or termination
+conclusive in a process or progression
+not to be altered or undone
